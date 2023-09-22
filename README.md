@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @lwuiz, i'm brazilian 
+- 👀 I’m interested in make new friends and learn more 
+- 🌱 I’m currently learning python and English 
